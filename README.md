@@ -13,4 +13,5 @@
 ### Rede Sociais!
 
 🏡 [Portfólio UX UI](https://www.behance.net/cinthux) **|** 
-👔 [linkedin](https://www.linkedin.com/in/cinthia-bezerra/)
+👔 [linkedin](https://www.linkedin.com/in/cinthia-bezerra/) **|** 
+📖 [Medium](https://medium.com/@cinthia.rbs010)
