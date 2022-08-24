@@ -1,6 +1,6 @@
 ### 💜 Olá, meu nome é <strong>Cínthia Raquel!</strong>
 
-> Sou UX / UI Designer e desenvolvo algumas páginas web.
+> Sou UX / UI Designer e desenvolvedora.
 
 ### 🚀 Minhas Skills
 
